@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Softkingsley
+- 👋 Hi, I’m Softkingsley
